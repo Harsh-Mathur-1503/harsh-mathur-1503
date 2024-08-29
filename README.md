@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **harshmathur0315@gmail.com**
 
-- 📄 My Resume - [https://drive.google.com/file/d/1e7j22peeBV7cll4uwfOpILTkvZ6olvdu/view?usp=sharing](https://drive.google.com/file/d/1e7j22peeBV7cll4uwfOpILTkvZ6olvdu/view?usp=sharing)
+- 📄 My Resume - [https://drive.google.com/file/d/1wWBHb_l65F4AaevmxDAXCaTnJWSlboKl/view?usp=sharing](https://drive.google.com/file/d/1wWBHb_l65F4AaevmxDAXCaTnJWSlboKl/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
